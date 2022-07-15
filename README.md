@@ -1,4 +1,4 @@
-Heya, I'm the lead composer of the Mother: Roots fangame, I guess.
+Heya, I'm a transfem dumbass I guess. :D
 
 <!---
 ActualNK358/ActualNK358 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
